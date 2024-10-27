@@ -1,1 +1,1 @@
-This is a backup of my collection of seminal COVID-19 essays and info pages, May 2020 to October 2024. When scoop.it announced that "topics" curated in free accounts would no longer be publicly visible, I thought it was time to move on. 
+This is a backup of my collection of seminal COVID-19 essays and info pages, May 2020 to October 2024. When scoop.it announced that "topics" curated in free accounts would no longer be publicly visible, I thought it was time to move on. Thank you, scoop.it! 
